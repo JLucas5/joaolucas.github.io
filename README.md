@@ -1,2 +1,0 @@
-# joaolucas.github.io
-TArefa
